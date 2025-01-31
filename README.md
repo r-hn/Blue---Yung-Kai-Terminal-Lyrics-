@@ -1,1 +1,1 @@
-# Blue---Yung-Kai-Terminal-Lyrics-
+# Blue - Yung Kai (Terminal Lyrics)
